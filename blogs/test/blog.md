@@ -1,3 +1,3 @@
 # New post
 
-Start writing...b,nbj,
+Start writing...
